@@ -2,7 +2,7 @@
 - 👀 I’m interested XDA, Classic Rock, and Nature.
 - 🌱 I’m currently learning Java.
 - 💞️ I’m looking to collaborate on anything i can learn while doing.
-- 📫 How to reach me Email: developer.erika@gmail.com.
+- 📫 How to reach me Email: dev.erika.droid@gmail.com.
 - 😄 Pronouns: She/They/It.
 - ⚡ Fun fact: I love learning new things.
 
